@@ -266,7 +266,7 @@ We may update this privacy notice from time to time. The updated version will be
 
   
 
-If you have questions or comments about this notice, you may email us at \_\_\_\_\_\_\_\_\_\_ or contact us by post at:
+If you have questions or comments about this notice, you may email us at quantgames.dayo@gmail.com or contact us by post at:
 
   
 
